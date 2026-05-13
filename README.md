@@ -1,0 +1,1 @@
+# 24343121_Nabilla-Nur-Fadhilah_SegmentasiCitra
